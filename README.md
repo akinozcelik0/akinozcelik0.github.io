@@ -1,1 +1,0 @@
-# akinozcelik0.github.io
